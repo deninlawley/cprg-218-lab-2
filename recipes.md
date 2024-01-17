@@ -55,6 +55,7 @@ Ingredients:
 - 1/2 cup bread crumbs
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
+- 1/4 cup ricotta cheese
 - 1 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
