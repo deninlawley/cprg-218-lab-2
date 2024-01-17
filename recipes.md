@@ -114,3 +114,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Irish Coffee
+
+Ingredients:
+- 1 cup freshly brewed hot coffee
+- 1 tablespoon brown sugar
+- 1 jigger Irish whiskey (1 1/2 ounces or 3 tablespoons)
+- Heavy cream, slightly whipped
+
+Instructions:
+1. Fill footed mug or a mug with hot water to preheat it, then empty. 
+2. Pour piping hot coffee into warmed glass until it is about 3/4 full.
+3. Add the brown sugar and stir until completely dissolved.
+4. Blend in Irish whiskey. 
+5. Top with a collar of the whipped heavy cream by pouring gently over back of spoon. 
+6. Serve hot.
